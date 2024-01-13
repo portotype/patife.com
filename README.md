@@ -1,5 +1,5 @@
 Hello
 
-I moved website to ⏩⏩⏩ [berto.com](https://berto.com) 
+I moved this website to ⏩⏩⏩ [berto.com](https://berto.com) 
 
-If you're interested in acquiring the patife.com domain, reach me out on twitter, @patife.
+If you're interested in acquiring this domain, reach out on twitter, @patife.
